@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KxvinPxtel
+- 👀 I’m interested in playing sports, video games, and coding.
+- 🌱 I’m currently learning C++ 
+- 📫 How to reach me @kxvin.pxtel1@gmail.com
